@@ -19,5 +19,5 @@ Feel free to explore my repositories and reach out if you have any questions or 
 
 ## How to Reach Me 
 
-- Linkdin ==> linkedin.com/in/aniket-jadhav-19a817224
+- Linkdin ==> [linkedin.com/in/aniket-jadhav-19a817224](https://www.linkedin.com/in/aniket-jadhav-19a817224/)
 - Mail ==> work.aniketjadhav@gmail.com
